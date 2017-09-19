@@ -7,4 +7,4 @@ https://kodaktor.ru/g/dmp13092017
 
 Ответ на задание 1:https://kodaktor.ru/j/myjson_ce22e 
 
-Ответ на задание 2:https://kodaktor.ru/j/myjson_560fd
+Ответ на задание 2:https://kodaktor.ru/j/myjson_dc306
